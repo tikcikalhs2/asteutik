@@ -1,2 +1,1 @@
-# asteutik.id
-Kpop &amp; aesthetic stuff 
+aesthetic stuff 
